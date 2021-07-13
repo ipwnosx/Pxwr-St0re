@@ -1,2 +1,0 @@
-# CydiaSt0re
-gg
